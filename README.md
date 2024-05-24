@@ -5,4 +5,4 @@
 
 Essa linha eu adicionei diretamente no site! Que impressionante!
 
-E essa estou estou estudando pelo meu smartphone! Também é impressionante!
+E essa linha estou estou estudando pelo meu smartphone! Também é impressionante!
